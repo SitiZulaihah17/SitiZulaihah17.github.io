@@ -17,8 +17,8 @@ Fakultas : Sains dan Teknologi<br>
 Universitas : UIN Suska Riau<br>
 Alamat : Perumahan Mustamindo<br>
 Hobby : Nonton Drama Korea<br>
-Facebook : Zully Zulaikhah<br>
+Facebook : Zully Zulaikha<br>
 Twitter : Zully_Laikha<br>
-Instagram : Zully Zulaihah<br>
+Instagram : Zully Zulaikha<br>
 
 <img src="/assets/InstaShot_20150820_215224.jpg">
