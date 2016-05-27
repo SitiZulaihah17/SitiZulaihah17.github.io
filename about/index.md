@@ -20,4 +20,4 @@ Hobby : Nonton Drama Korea<br>
 Facebook : Zully Zulaikhah<br>
 Twitter : Zully_Laikha<br>
 
-<img src="/assets/P_20160206_094631_BF.jpg">
+<img src="/assets/InstaShot_20150820_215224.jpg">
