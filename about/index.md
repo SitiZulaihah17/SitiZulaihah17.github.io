@@ -20,7 +20,7 @@ Universitas : UIN Suska Riau<br>
 
 <img src="/assets/InstaShot_20150820_215224.jpg">
 
-## Siti Zulaihah
+## Zully
 Alamat : Perumahan Mustamindo<br>
 Hobby : Watching Movie<br>
 ID Line : Zully_Zulaikha17<br>
