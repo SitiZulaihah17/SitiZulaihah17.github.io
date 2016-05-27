@@ -19,5 +19,6 @@ Alamat : Perumahan Mustamindo<br>
 Hobby : Nonton Drama Korea<br>
 Facebook : Zully Zulaikhah<br>
 Twitter : Zully_Laikha<br>
+Instagram : Zully Zulaihah<br>
 
 <img src="/assets/InstaShot_20150820_215224.jpg">
