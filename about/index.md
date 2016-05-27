@@ -19,6 +19,8 @@ Universitas : UIN Suska Riau<br>
 [uin suska](http://uin-suska.ac.id/)<br>
 
 <img src="/assets/InstaShot_20150820_215224.jpg">
+
+---
 ## Siti Zulaihah
 Alamat : Perumahan Mustamindo<br>
 Hobby : Watching Movie<br>
