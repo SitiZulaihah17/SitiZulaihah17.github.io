@@ -15,15 +15,14 @@ NIM : 11353201349<br>
 Jurusan : Sistem Informasi<br>
 Fakultas : Sains dan Teknologi<br>
 Universitas : UIN Suska Riau<br>
-Alamat : Perumahan Mustamindo<br>
-Hobby : Nonton Drama Korea<br>
-Facebook : Zully Zulaikha<br>
-Twitter : Zully_Laikha<br>
-Instagram : Zully Zulaikha<br>
 [sif uin suska](http://sif.uin-suska.ac.id/)<br>
 [uin suska](http://uin-suska.ac.id/)<br>
 
-
-
-
 <img src="/assets/InstaShot_20150820_215224.jpg">
+## Siti Zulaihah
+Alamat : Perumahan Mustamindo<br>
+Hobby : Watching Movie<br>
+ID Line : Zully_Zulaikha17
+Facebook : Zully Zulaikha<br>
+Twitter : Zully_Laikha<br>
+Instagram : Zully Zulaikha<br>
